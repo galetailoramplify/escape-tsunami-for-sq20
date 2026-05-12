@@ -1,4 +1,4 @@
-#  
+#  Experience escape tsunami for brainrots like never before with instant escape tsunami for brainrots Scripts, the #1 Script. Includes no clip and
 
 
 
